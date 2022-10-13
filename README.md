@@ -1,5 +1,7 @@
 #  Hi, I’m @Etinosa22 👋
 
+### Thank you for checking out my page
+
 ![image](https://user-images.githubusercontent.com/54244538/195722418-8904e268-2e79-403f-a9b5-d16a643c7129.png)
 
 
